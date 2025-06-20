@@ -18,4 +18,5 @@
                                                              or problematic..
                                                          
                                             CoD, TSP, Hannibal, TLOU, TWD, The Pitt, TMA, Black Butler ;; 
-           Please INT!! UNless! UNless you are problematic, or INT with the problematic/toxic side of the fandom! You will be hidden..
+                                                                Please INT!!
+            Unless you are problematic, or INT with the problematic/toxic side of the fandom! You will be hidden..
